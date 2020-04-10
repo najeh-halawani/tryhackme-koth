@@ -1,4 +1,4 @@
-Simple Tricks I use While Playing King Of The Hill
+## Simple Tricks I use While Playing King Of The Hill
 
 Hey guys, hope you're doing well :) 
 
